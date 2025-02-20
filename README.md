@@ -6,6 +6,7 @@
 - I’m a new programmer looking for **game development**!
 - Currently, I'm using **Unity and Unreal Engine** for developing apps and games and learning **Mixed Reality** environments for metaverses and experiences
 - My passions are videogames, flight/drive simulators, animations and sci-fi
+- Sometimes I love to draw digital art and illustrations
 
 ## My contacts
   
