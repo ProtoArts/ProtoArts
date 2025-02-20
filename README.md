@@ -10,7 +10,7 @@
 ## My contacts
   
 - You can contact me on [Telegram](https://t.me/ProtoArts)
-- I recommend you to visit my [YouTube](https://www.youtube.com/@ProtoArtsProduction) or [Artstation]([url](https://www.artstation.com/protoarts)) for my portfolio
+- I recommend you to visit my [YouTube](https://www.youtube.com/@ProtoArtsProduction) or [Artstation](https://www.artstation.com/protoarts) for my portfolio
 
 ### PS
 - And yes I'm a furry, a protogen one, but that doesn't mean I create suspicious content -w-
